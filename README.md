@@ -1,0 +1,1 @@
+Fala Angelo na hora do video, esqueci de voltar e fazer a parte dos membros e finanças mas já foi mt dificil fazer o video dentre 5 minutos o senhor viu pela minutagem e eu tava muito nervoso mas no codigo ta essa parte até explico "direitinho" no video porem esqueço de executar
